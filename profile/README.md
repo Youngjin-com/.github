@@ -2,7 +2,7 @@
 <p align="center"><img src="https://github.com/user-attachments/assets/d75411e7-9c25-47d7-8404-5e6184977796"></p>
 </br>
 안녕하세요 출판사 영진닷컴입니다 👋  </br>
-IT 메뉴얼/실용서를 전문으로 펴내고 있습니다. 
+IT 메뉴얼/실용서를 전문으로 펴내고 있으며, 독자들에게 실용적이고 깊이 있는 지식을 제공합니다 😊
 
 </br>
 </br>
